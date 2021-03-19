@@ -1,1 +1,0 @@
-# de-sociopathen-van-de-gouden-driehoek
